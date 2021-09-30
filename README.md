@@ -1,2 +1,0 @@
-# Las-educativas
-Cuidado
